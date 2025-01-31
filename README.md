@@ -1,1 +1,1 @@
-# Coma back later for a completed website and a cookie!
+# Come back later for a completed website and a cookie!
